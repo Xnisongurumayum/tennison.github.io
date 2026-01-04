@@ -1,1 +1,1 @@
-Everybod lies - and I am still alive
+Everybody lies - and I am still alive
